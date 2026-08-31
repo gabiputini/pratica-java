@@ -1,1 +1,1 @@
-
+Apenas armazenando os exercícios de prática da minha faculdade
